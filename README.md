@@ -1,4 +1,4 @@
-# 💫 About Me:
+# ❤️ About Me:
 Olá, eu sou Raiana Magna 👩🏻‍💻<br>Seja bem - vinda(o)..🥰<br>
 
 
